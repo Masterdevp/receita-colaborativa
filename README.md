@@ -14,4 +14,4 @@
 4. Bater os ovos e engadir sal.
 5. Mesturar as patacas e a cebola cos ovos batidos.
 6. Cociñar nunha tixola por ambos lados ata que estea dourada.
-7. Servir quente e desfrutar.
+
